@@ -1,4 +1,4 @@
-# 
+# Nuevo WinRAR plugins para Mac OS | Automático WinRAR plugins para PC Windows. Con aceleración de hardware y exportación de datos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
